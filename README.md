@@ -9,7 +9,7 @@ QQ Group:
 
 313308215
 
-WeChat Public Account(微信公众号):
+WeChat Official Account(微信公众号):
 
 Xamarin Library
 
